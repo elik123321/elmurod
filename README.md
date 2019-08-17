@@ -1,0 +1,2 @@
+# elmurod
+salol hammanga
